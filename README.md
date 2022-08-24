@@ -1,6 +1,6 @@
 # windows 10 pro product key
 
-[![windows 10 pro product key](get-detail.png)](https://github.com/techrapidly/windows10.pro.product.key)
+[![windows 10 pro product key](get-startted.png)](https://github.com/techrapidly/windows10.pro.product.key)
 
 Microsoft is providing their products free as well as activated products. We have noticed that many users are trying to find out the free Windows 10 product key. For example, Microsoft Office 2007, Microsoft 2013, and other products all require serial keys or product keys of Windows. Similarly, Windows 10 also need the product key for all version of Windows 10.  Windows 10 Professional Product Key Generator requires the product key to place in the Windows properties.
 
